@@ -1,2 +1,0 @@
-# 110assignment2
- 
